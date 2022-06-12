@@ -9,5 +9,5 @@ Please help us to classify the pictures in Unclassify folder
 Anime-Girls-Holding-Physics-Books
 ---
 欢迎传图  
-猫猫读数学/物理书的图也可以  
+也欢迎猫猫读数学/物理书的图  
 请帮助我们将 Unclassified 目录下的图片分类  
